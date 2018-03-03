@@ -1,0 +1,7 @@
+# Kara article
+
+
+
+
+
+# Thoughts
